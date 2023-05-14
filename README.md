@@ -6,12 +6,11 @@ This Fan docs you can watch here-
 # Stands
 Made in haven(china)-govno
 yra pidor
-aaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaaa
-a
-a
-a
-a
-a
-a
-a
+
+# 1
+# 1
+# 1
+# 1
+# 1
+
 # Suka blyat
